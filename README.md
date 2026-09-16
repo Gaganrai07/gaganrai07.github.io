@@ -1,1 +1,1 @@
-gaganrai07.github.io <--- click on this to preview my portfolio
+gaganrai07.github.io <--- Chrome this this to preview my portfolio
